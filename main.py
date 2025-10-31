@@ -1,0 +1,1 @@
+#Bu asosiy fayl
